@@ -1,3 +1,4 @@
+https://github.com/KintanSeprilSyayuni/SIG_TEORI/blob/main/Padang.png
 
 Langkah –langkah buat MarkingMap
 
